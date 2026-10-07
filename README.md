@@ -176,9 +176,9 @@ I'm particularly interested in exploring:
 
 ## 📫 Connect With Me
 
-* 💼 **GitHub:** [Add your GitHub profile link]
-* 🔗 **LinkedIn:** [Add your LinkedIn profile link]
-* 📧 **Email:** [Add your professional email]
+* 💼 **GitHub:** https://github.com/Saimahalakshmi20
+* 🔗 **LinkedIn:** https://www.linkedin.com/in/sai-mahalakshmi-siva-kumar-86827a435?utm_source=share_via&utm_content=profile&utm_medium=member_android
+* 📧 **Email:** mahasbss08@gmail.com
 
 ---
 
